@@ -2,7 +2,7 @@
 
 >*dark mode*
  
-![](https://pbs.twimg.com/media/GglXvMlaoAAlDoV?format=jpg&name=small)
+![](https://pbs.twimg.com/media/Ggla8ilbIAAERmK?format=jpg&name=medium)
 
 ── .✦:
 
