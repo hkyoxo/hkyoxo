@@ -1,4 +1,4 @@
-![Profile view counter on Github](https://komarev.com/ghpvc/?username=cIostrife)
+![Profile view counter on Github](https://komarev.com/ghpvc/?username=kyosh0)
 > *dark mode*
 >![](https://pbs.twimg.com/media/GZxvm6taUAA8oHq?format=jpg&name=large)
 > > kyo ig. 14 ig. basic dni ig. sefikura shippers dni ig. i rlly rlly like rufus shinra ig.
