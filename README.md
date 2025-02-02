@@ -1,5 +1,5 @@
 <p align="center">
-<img width="100" src="https://komarev.com/ghpvc/?username=kyosh0"
+<img width="100" src="https://komarev.com/ghpvc/?username=kyoteru"
 </p>
 
  <p align="center">
