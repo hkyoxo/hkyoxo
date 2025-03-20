@@ -3,7 +3,7 @@
 </p>
 
  <p align="center">
-<img width="500" src="https://i.pinimg.com/736x/10/28/a3/1028a331215f53eef141383dfa02c401.jpg"
+<img width="400" src="https://i.pinimg.com/736x/10/28/a3/1028a331215f53eef141383dfa02c401.jpg"
 </p>
 
 ── .✦: ![](https://files.catbox.moe/ir4sp2.gif)
