@@ -3,7 +3,7 @@
 </p>
 
  <p align="center">
-<img width="400" src="https://i.pinimg.com/736x/10/28/a3/1028a331215f53eef141383dfa02c401.jpg"
+<img width="400" src="https://scontent.fkul16-4.fna.fbcdn.net/v/t1.15752-9/484154014_1167382164883190_6618418229930690722_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=0024fc&_nc_ohc=s8zWryzr-qMQ7kNvgFHAIH7&_nc_oc=AdkaS7GO4p0TvxGE_Um5DxRPNKHbwRixfq0nYyrMOQu-lhQnQfgEq9vdt4b_CMHLe9PfkqhZEaABrfHGLQJDi9JX&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent.fkul16-4.fna&oh=03_Q7cD1wFr1OvJUamJKix39dV2xlaQM4w-PKCqi4mxieP6MHKRvg&oe=68044489"
 </p>
 
 ── .✦: ![](https://files.catbox.moe/ir4sp2.gif)
