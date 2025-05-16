@@ -3,7 +3,7 @@
 </p>
 
  <p align="center">
-<img width="500" src="https://cdn.discordapp.com/attachments/1333647726046613595/1372815551574835291/Untitled98_20250516135817.png?ex=6828259d&is=6826d41d&hm=a23cb38a22f22705b0de76e99e6e7f5e5051e503cdb845894ee7174037afc2e3&"
+<img width="400" src="https://cdn.discordapp.com/attachments/1333647726046613595/1372818957710397440/379226a9-b2a3-415d-8ac6-58d019751e62.png?ex=682828c9&is=6826d749&hm=2e7815a12d9687dadecb1411b6779b44a1e16d255dbe532f54d2c3fd1ebc4a19"
 </p>
 
 ──── 　.✦: 　![](https://files.catbox.moe/gbnsb0.gif)
