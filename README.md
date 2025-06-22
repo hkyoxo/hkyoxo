@@ -1,9 +1,9 @@
 <p align="center">
-<img width="100" src="https://komarev.com/ghpvc/?username=kyoteru"
+<img width="60"src=https://komarev.com/ghpvc/?username=kyoxoo&color=e1d5e8&label=✧.*&base=1885>
 </p>
  
  
-> .　　[rentry](https://rentry.co/honeyroast)　╱　[ata](https://kyoxshi.atabook.org/)  　　![](https://files.catbox.moe/uhokfa.gif) 
+> .　　[rentry](https://rentry.co/honeyroast)　╱　[ata](https://kyoxshi.atabook.org/)  　　![](https://files.catbox.moe/uhokfa.gif)      light mode . .
 </p>
 
 ──── 　.✦: 　![](https://files.catbox.moe/gbnsb0.gif)
