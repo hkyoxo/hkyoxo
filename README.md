@@ -3,7 +3,7 @@
 </p>
  
  
-> .　　[rentry](https://rentry.co/honeyroast)　╱　[ata](https://kyoxshi.atabook.org/)  　　![](https://files.catbox.moe/uhokfa.gif)      light mode is recommended . .
+> .　　[rentry](https://rentry.co/honeyroast)　╱　[ata](https://kyoxshi.atabook.org/)  　　![](https://files.catbox.moe/uhokfa.gif)      light mode . .
 </p>
 
 ──── 　.✦: 　![](https://files.catbox.moe/gbnsb0.gif)
