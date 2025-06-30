@@ -2,7 +2,7 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=kyoxoo&color=aeb29a&label=✧.*&base=2070>
 </p>
 
-![](https://i.postimg.cc/7Pzt4X55/Untitled139-20250630002745.png).　　[rentry](https://rentry.co/honeyroast)　╱　[ata](https://kyoxshi.atabook.org/)  　　![](https://files.catbox.moe/pltr6m.gif)      
+![](https://i.postimg.cc/LskTHCjc/Untitled139-20250630002745-1.png).　　[rentry](https://rentry.co/honeyroast)　╱　[ata](https://kyoxshi.atabook.org/)  　　![](https://files.catbox.moe/pltr6m.gif)      
 
 ──── 　.✦: 　![](https://files.catbox.moe/l5i2cu.gif)
 
