@@ -6,7 +6,7 @@
 <img src="https://i.postimg.cc/LskTHCjc/Untitled139-20250630002745-1.png">
   </div> 
 
-.　　[rentry](https://rentry.co/gdraqon)　╱　[ata](https://kyoxshi.atabook.org/) / [ponytown rentry](https://rentry.co/jiyonq)　　![](https://files.catbox.moe/pltr6m.gif)   
+.　　[rentry](https://rentry.co/gdraqon)　╱　[ata](https://kyoxshi.atabook.org/)　╱　[pt](https://rentry.co/jiyonq)　　![](https://files.catbox.moe/pltr6m.gif)   
 
 ──── 　.✦: 　![](https://files.catbox.moe/l5i2cu.gif)
 
