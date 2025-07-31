@@ -6,7 +6,7 @@
 <img src="https://i.postimg.cc/KcVqcLvm/ed0a8cbbe0cd69f2294c5fdc59683fae-removebg-preview.png">
   </div> 
 
-.　　[rentry](https://rentry.co/gdraqon)　╱　[ata](https://kyoxshi.atabook.org/)　　![](https://files.catbox.moe/p9m02v.gif)   
+.　　[rentry](https://rentry.co/kwonjiyonq)　╱　[ata](https://kyoxshi.atabook.org/)　　![](https://files.catbox.moe/p9m02v.gif)   
 
 ![](https://files.catbox.moe/u3kjcy.gif)  ╴╴╴╴╴╴♡₊˚๑
 
