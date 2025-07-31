@@ -2,7 +2,9 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=kyorax&color=A7C0D9&label=✧.*&base=2845>
 </p>
 
-[![rentry](https://i.postimg.cc/3rGvnzKs/Untitled171-20250731182151.png)](https://rentry.co/kwonjiyonq) [![ata](https://i.postimg.cc/T33hMs6Y/Untitled171-20250731182323.png)](https://kyoxshi.atabook.org/)
+★            |  ★
+:-------------------------:|:-------------------------:
+[![rentry](https://i.postimg.cc/3rGvnzKs/Untitled171-20250731182151.png)](https://rentry.co/kwonjiyonq)  |  [![ata](https://i.postimg.cc/T33hMs6Y/Untitled171-20250731182323.png)](https://kyoxshi.atabook.org/)
 
 .　　[![strawpage](https://64.media.tumblr.com/tumblr_m0cq1uESFx1qbs47q.gif)](https://gdrgon.straw.page/)　╱　[![guns](https://64.media.tumblr.com/tumblr_m0cq283gGt1qbs47q.gif)](https://guns.lol/kyurax)　　![](https://files.catbox.moe/p9m02v.gif)   
 
