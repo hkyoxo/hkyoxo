@@ -2,7 +2,7 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=kyorax&color=A7C0D9&label=✧.*&base=2845>
 </p>
 
-★ rentry            |  ata ★
+★ rentry .            |  . ata ★
 :-------------------------:|:-------------------------:
 [![rentry](https://i.postimg.cc/3rGvnzKs/Untitled171-20250731182151.png)](https://rentry.co/kwonjiyonq)  |  [![ata](https://i.postimg.cc/T33hMs6Y/Untitled171-20250731182323.png)](https://kyoxshi.atabook.org/)
 
