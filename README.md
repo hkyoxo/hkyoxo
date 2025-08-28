@@ -12,7 +12,7 @@ malay = ehh but still ok ^_^
 
 selective sharing fem!pav yume,,,, i love my gf <3 (i dont rlly block doubles pls dont be scared of me)
 
-#1 rufus shinra fan LALALA I LOVE MY DAD
+#1 rufus shinra fan LALALA I LOVE MY DAD and i freaking love the turks SM,,,,
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
