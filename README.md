@@ -6,6 +6,10 @@ WIPWIPWIP im unmotivated to finish this
 [twitter](https://x.com/hkyo_xo)
 [tiktok](https://www.tiktok.com/@kyox.o?_t=ZS-8ym99Zhofmz&_r=1)
 
+中文/粤语/eng = OK! 
+
+malay = ehh but still ok ^_^
+
 selective sharing fem!pav yume,,,, i love my gf <3 (i dont rlly block doubles pls dont be scared of me)
 
 #1 rufus shinra fan LALALA I LOVE MY DAD
