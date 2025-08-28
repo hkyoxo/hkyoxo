@@ -8,7 +8,7 @@ WIPWIPWIP im unmotivated to finish this
 
 selective sharing fem!pav yume,,,, i love my gf <3 (i dont rlly block doubles pls dont be scared of me)
 
-#1 rufus shinra LALALA I LOVE MY DAD
+#1 rufus shinra fan LALALA I LOVE MY DAD
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
