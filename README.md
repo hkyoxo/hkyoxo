@@ -10,9 +10,7 @@ WIPWIPWIP im unmotivated to finish this
 
 malay = ehh but still ok ^_^
 
-selective sharing fem!pav yume,,,, i love my gf <3 (i dont rlly block doubles pls dont be scared of me)
-
-#1 rufus shinra fan LALALA I LOVE MY DAD and i freaking love the turks SM,,,,
+#1 rufus shinra fan lalala i love my dad and i love the turks a lot too,, 
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
