@@ -2,7 +2,7 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=A7C0D9&label=✧.*&base=2845>
 </p>
 
-NEW RENTRY YAY!
+NEW RENTRY YAY! https://rentry.co/sachou
 
 WIPWIPWIP im unmotivated to finish this
 [twitter](https://x.com/hkyo_xo)
