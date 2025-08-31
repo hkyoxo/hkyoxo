@@ -2,6 +2,8 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=A7C0D9&label=✧.*&base=2845>
 </p>
 
+NEW RENTRY YAY!
+
 WIPWIPWIP im unmotivated to finish this
 [twitter](https://x.com/hkyo_xo)
 [tiktok](https://www.tiktok.com/@kyox.o?_t=ZS-8ym99Zhofmz&_r=1)
