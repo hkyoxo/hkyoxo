@@ -12,9 +12,9 @@ WIPWIPWIP im unmotivated to finish this
 
 malay = ehh but still ok ^_^
 
-#1 rufus shinra fan lalala i love my dad and i love the turks a lot too,, 
+#1 rufus shinra fan lalala and i love the turks a lot too,, 
 
-selective sharing light yagami yume lalaaalaaaa
+non sharing rufus shinra yume selective sharing light yagami yume lalaaalaaaa
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
