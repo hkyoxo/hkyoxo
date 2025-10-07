@@ -4,7 +4,7 @@
 
 NEW RENTRY YAY! https://rentry.co/sachou
 
-WIPWIPWIP im unmotivated to finish this
+WIPWIPWIP im unmotivated to finish this github
 [twitter](https://x.com/hkyo_xo)
 [tiktok](https://www.tiktok.com/@kyox.o?_t=ZS-8ym99Zhofmz&_r=1)
 
