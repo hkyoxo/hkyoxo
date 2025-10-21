@@ -2,19 +2,17 @@
 <img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=A7C0D9&label=✧.*&base=2845>
 </p>
 
-NEW RENTRY YAY! https://rentry.co/sachou
+byi: HI i dont bite, but maybe sometimes i'd be a bit awkward erm. and SORRY if i dont reply back much sometimes bc i dont like long conversations 💔
 
-WIPWIPWIP im unmotivated to finish this github
-[twitter](https://x.com/hkyo_xo)
-[tiktok](https://www.tiktok.com/@kyox.o?_t=ZS-8ym99Zhofmz&_r=1)
+dni: basic dni criteria ok, no weirdo and anything 
 
-中文/粤语/eng = OK! 
+follow me to get free bread 🥖🍞 [twitter](https://x.com/hkyo_xo) , [tiktok](https://www.tiktok.com/@kyox.o?_t=ZS-8ym99Zhofmz&_r=1)
 
-malay = ehh but still ok ^_^
+中文/粤语/eng/malay = OK! 
 
-#1 rufus shinra fan lalala and i love the turks a lot too,, 
+#1 rufus shinra fan lalala I LOVE MR PRESIDENT
 
-non sharing rufus shinra yume selective sharing light yagami yume lalaaalaaaa
+yume: rufus shinra (non.sharing), light yagami (sel.sharing) , evernight (sharing?? sel.sharing?? idk but im ok w doubles for now)
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
