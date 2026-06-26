@@ -7,7 +7,7 @@
 
   <body>
     <p align="center">
-    layout wip
+      important: if you are a friend of an ex friend of mine and are aware of everything that occurred between us, DNI. we aren't planning to call you out yet, but we will make a document to protect ourselves when needed. do not try to spread misinformations any further.
     </p>
            </p>
     <p align="center">
