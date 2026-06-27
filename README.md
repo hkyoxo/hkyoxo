@@ -7,12 +7,14 @@
 
   <body>
     <p align="center">
-      important: if you are a friend of an ex friend of mine and are aware of everything that occurred between us, DNI. we aren't planning to call you out yet, but we will make a document to protect ourselves when needed. do not try to spread misinformations any further.
+      IMPORTANT: https://docs.google.com/document/d/1_WXTivR7H6tZPv0eoA5TrctG1SbyxcDeUnocjRwKfPc/edit?usp=sharing @screamotabi 's blacklist. basically exposing whatever he had done.
+
+NOTE: Do not go harass any people mentioned in this document. The main purpose of this document is for self-protection due to suspected misinformation being spread around.
     </p>
            </p>
     <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iaeuhibo5qdvzg4taan4e5ev4m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=696969&bar_color_cover=false">
+    <img src="https://i.postimg.cc/6qqb3Mr2/Whats-App-Image-2026-06-27-at-5-39-31-PM.jpg">
+    wow im so mad bro aw man
   </a>
 </p>
     <p align="center">
